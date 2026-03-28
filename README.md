@@ -1,4 +1,4 @@
-# 👋 Hey! I'm Rip-Kirito-py
+# 👋 Hey! I'm Rip-Kirito
 
 ### 🎮 Interests
 - Gaming (FPS • Roblox • Anime games)
